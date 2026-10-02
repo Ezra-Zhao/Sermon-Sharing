@@ -16,6 +16,7 @@ Weekly sermon manuscripts, shared for learning and ministry. New and archived ma
 
 | 日期 | 主题 | 经文 |
 |---|---|---|
+| 2026-08-16 | 你的明天在神的手中 | 约书亚记 3:5、4:20-24；使徒行传 1:8；马太福音 6:34 |
 
 ## 声明
 
