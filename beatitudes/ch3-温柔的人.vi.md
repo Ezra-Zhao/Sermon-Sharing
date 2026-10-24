@@ -84,3 +84,7 @@ Con trao cho Ngài những việc đã lâu không có tin tức, và tấm lòn
 ---
 
 (Ghi chú nguồn: Phân tích từ ngữ Hy Lạp trong chương này dựa trên nguyên văn, các số Strong, Thi Thiên 36:11 của Bản Bảy Mươi (LXX 36:11; số thứ tự Hê-bơ-rơ là 37:11), và cách dùng song song trong Tân Ước; các trích dẫn từ Bản dịch Lü Zhenzhong tuân theo bản văn đã xuất bản công khai, và chỉ trích câu ngắn của câu Kinh Thánh này; mọi trích dẫn Kinh Thánh trong bản thảo tiếng Trung đã được kiểm tra từng chữ với Bản Liên Hiệp Trung Hoa (Chinese Union Version), và được trình bày ở đây trong bản NKJV. Ở bất cứ nơi nào quan điểm của người khác (các Mục sư Liu Tong, Cho Erjun và Li Jieren, cùng với Warren Wiersbe, Tim Keller và những người khác) được trích dẫn, nguồn đã được ghi trong thân bài.)
+
+## 灵修摘取 · Trích đoạn tĩnh nguyện
+
+Câu Kinh Thánh trọng tâm: «Phước cho những kẻ nhu mì, vì sẽ hưởng được đất!» (Ma-thi-ơ 5:5). Điểm chính hôm nay: nhu mì không phải là không có sức, mà là sức mạnh ở dưới sự cai quản của Chủ mình. Người không tự tay trả đũa sự oan ức, mà giao vụ việc cho Đức Chúa Trời, cuối cùng sẽ hưởng được đất làm cơ nghiệp. Hướng cầu nguyện: Lạy Chúa, xin chế ngự sức mạnh chưa được thuần phục trong con. Khi bị đối xử bất công, xin đừng để con vội trả đũa; xin cho con can đảm nói sự thật cách bình tĩnh và kiên nhẫn chờ đợi thì giờ của Ngài.

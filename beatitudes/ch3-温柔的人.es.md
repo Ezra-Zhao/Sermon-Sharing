@@ -84,3 +84,7 @@ Te entrego esos asuntos de los que no ha habido noticia en mucho tiempo, y este 
 ---
 
 (Nota sobre la fuente: El análisis de la palabra griega en este capítulo se basa en el texto original, los números de Strong, el Salmo 36:11 de la Septuaginta (LXX 36:11; numeración hebrea 37:11) y el uso paralelo en el Nuevo Testamento; las citas de la Traducción de Lü Zhenzhong siguen el texto publicado públicamente, y solo se cita la frase corta de este versículo; todas las citas bíblicas del manuscrito chino fueron revisadas palabra por palabra contra la Versión Unión China, y aquí se presentan en la NKJV. Dondequiera que se citan los puntos de vista de otros (los pastores Liu Tong, Cho Erjun y Li Jieren, así como Warren Wiersbe, Tim Keller y otros), la fuente ha sido indicada en el cuerpo del texto.)
+
+## 灵修摘取 · Extracto devocional
+
+Texto central: «Bienaventurados los mansos, porque ellos recibirán la tierra por heredad» (Mt 5:5). Puntos de hoy: la mansedumbre no es ausencia de fuerza, sino fuerza bajo el gobierno de su Dueño. Quien no busca vengarse por su cuenta y entrega su causa a Dios, al final hereda la tierra. Dirección de oración: Señor, doma la fuerza indómita que hay en mí. Cuando me traten injustamente, no me dejes responder de inmediato con represalias; dame valor para decir los hechos con calma y paciencia para esperar tu tiempo.

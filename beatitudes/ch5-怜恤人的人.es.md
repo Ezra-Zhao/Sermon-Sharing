@@ -80,3 +80,7 @@ Tú has prometido que los misericordiosos alcanzarán misericordia. Creo que en 
 ---
 
 (Nota sobre la fuente: El análisis de la palabra griega en este capítulo se basa en el uso del adjetivo original eleēmōn, que se encuentra en el Nuevo Testamento solo en Mt. 5:7 y Heb. 2:17; la traducción de eleos en la Septuaginta correspondiente a hesed; y las citas paralelas en Mateo 9:13, 12:7 y 23:23. Las citas bíblicas han sido revisadas palabra por palabra contra la Versión Unión China en el manuscrito original; las demás referencias cruzadas se parafrasean en sustancia y no se citan extensamente. Dondequiera que se citan las opiniones de otros (los pastores Liu Tong, Zhuo Erjun y Li Jieren, y Warren Wiersbe, Tim Keller y otros), la fuente se indica en el texto.)
+
+## 灵修摘取 · Extracto devocional
+
+Texto central: «Bienaventurados los misericordiosos, porque ellos alcanzarán misericordia» (Mt 5:7). Puntos de hoy: la misericordia es lo que derrama quien primero la recibió de Dios. No basta con que el corazón se duela: las manos deben moverse. Soltar a la persona y al deudor que están en tu mano, eso es misericordia. Dirección de oración: Señor, que no olvide cuán grande fue la deuda que me perdonaste. Ablanda mi mano, para que hoy suelte a esa persona que está en mi poder.

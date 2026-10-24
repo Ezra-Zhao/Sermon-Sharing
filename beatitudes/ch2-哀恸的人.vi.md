@@ -82,3 +82,7 @@ Cảm tạ Ngài vì lời hứa của Ngài: những kẻ than khóc sẽ đư�
 ---
 
 (Ghi chú nguồn: Phân tích từ ngữ Hy Lạp trong chương này dựa trên nguyên bản, số Strong và cách dùng trong bản Bảy Mươi Septuagint; các trích dẫn từ Bản dịch Lữ Chấn Trung tuân theo văn bản đã được xuất bản công khai; tất cả các trích dẫn Kinh Thánh trong bản thảo tiếng Hoa đều được đối chiếu từng từ với Bản Hiệp Hòa Hoa ngữ, và tại đây được trình bày theo bản NKJV. Bất cứ nơi nào trích dẫn quan điểm của người khác (các Mục sư Lưu Đồng [Liu Tong], Trác Nhĩ Quân [Cho Erjun] và Lý Kiết Nhân [Li Jieren], cũng như Warren Wiersbe, Tim Keller và những người khác), nguồn đều đã được ghi chú trong phần thân bài.)
+
+## 灵修摘取 · Trích đoạn tĩnh nguyện
+
+Câu Kinh Thánh trọng tâm: «Phước cho những kẻ than khóc, vì sẽ được yên ủi!» (Ma-thi-ơ 5:4). Điểm chính hôm nay: sự than khóc của nước thiên đàng là khóc thật trước tội lỗi của mình và sự đổ vỡ của thế gian. Sự yên ủi Chúa Jêsus hứa không phải là câu «hãy ráng chịu», mà là Đức Thánh Linh, Đấng Yên Ủi, đích thân đến bên cạnh để nâng đỡ bạn. Hướng cầu nguyện: Lạy Chúa, xin phục hồi trong con một tấm lòng còn biết đau. Con đem đến trước mặt Ngài những giọt nước mắt con đã giấu và cố gượng chịu. Xin yên ủi con, và cho con cũng trở nên người yên ủi kẻ khác.

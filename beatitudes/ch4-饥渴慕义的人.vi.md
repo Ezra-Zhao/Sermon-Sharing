@@ -90,3 +90,7 @@ Ngài đã hứa rằng những kẻ đói khát về sự công bình sẽ đư
 ---
 
 (Ghi chú nguồn: Phân tích từ ngữ Hy Lạp trong chương này dựa trên các sự kiện ngữ pháp của nguyên văn — các phân từ hiện tại, các cách như chủ cách và đối cách, và thể bị động tương lai — các số Strong, và cách dùng song song trong Tân Ước; mọi trích dẫn Kinh Thánh trong bản thảo tiếng Trung đã được kiểm tra từng chữ với Bản Liên Hiệp Trung Hoa (Chinese Union Version), và được trình bày ở đây trong bản NKJV, trong khi các câu tham chiếu khác được diễn giải theo ý chính mà không trích dẫn nguyên văn dài. Ở bất cứ nơi nào quan điểm của người khác (các Mục sư Liu Tong, Cho Erjun và Li Jieren, cùng với Warren Wiersbe, Tim Keller và những người khác) được trích dẫn, nguồn đã được ghi trong thân bài.)
+
+## 灵修摘取 · Trích đoạn tĩnh nguyện
+
+Câu Kinh Thánh trọng tâm: «Phước cho những kẻ đói khát về sự công bình, vì sẽ được no đủ!» (Ma-thi-ơ 5:6). Điểm chính hôm nay: cơn đói này không phải là một phần của sự công bình, mà là toàn bộ sự công bình: ở đúng với Đức Chúa Trời và sống đúng trước mặt Ngài. Đấng làm cho no đủ là Đức Chúa Trời: con người mang đến cơn đói, Đức Chúa Trời mang đến thức ăn. Hướng cầu nguyện: Lạy Chúa, xin làm sạch khẩu vị của con. Hôm nay xin cho con ăn lời Ngài trước khi cầm điện thoại, và cho cơn đói khát sự công bình không dừng ở lời phẫn nộ, mà đi đến tay và đời sống của con.

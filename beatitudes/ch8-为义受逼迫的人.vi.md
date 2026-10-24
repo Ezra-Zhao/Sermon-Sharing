@@ -102,3 +102,7 @@ Vào ngày ấy, chúng ta sẽ gặp nhau trong cùng một nước. Xin làm c
 ---
 
 (Ghi chú nguồn: Phân tích từ ngữ Hy Lạp trong chương này dựa trên cách dùng diōkō (G1377) trong Tân Ước cho "truy đuổi / bắt bớ" và dạng bị động hoàn thành của dediōgmenoi; các nghĩa từ điển tiêu chuẩn của heneken (G1752), dikaiosynē (G1343), basileia (G932) và ouranos (G3772); sự tương ứng đầu-và-cuối của Phước Thứ Nhất và Phước Thứ Tám cả hai đều dùng thì hiện tại estin và autōn; và sự mở ra trực tiếp của phước này trong Ma-thi-ơ 5:11-12. Các trích dẫn Kinh Thánh đã được kiểm tra từng chữ với Bản Liên Hiệp Trung Hoa trong bản thảo gốc; các câu tham chiếu còn lại được diễn giải theo ý chính và không trích dẫn dài. Ở bất cứ nơi nào quan điểm của người khác (các Mục sư Liu Tong, Zhuo Erjun và Li Jieren, và Warren Wiersbe, Tim Keller và những người khác) được trích dẫn, nguồn được chỉ ra trong bản văn.)
+
+## 灵修摘取 · Trích đoạn tĩnh nguyện
+
+Câu Kinh Thánh trọng tâm: «Phước cho những kẻ chịu bắt bớ vì sự công bình, vì nước thiên đàng là của những kẻ ấy!» (Ma-thi-ơ 5:10). Điểm chính hôm nay: Chúa không bao giờ giấu cái giá phải trả: ngay từ đầu Ngài đã tính cho chúng ta nghe, và ngay từ đầu Ngài đã đặt nước thiên đàng vào tay chúng ta. Sự bắt bớ không chỉ là chuyện ở xa: đó cũng là cái giá nhỏ khi nói «không được» ở nơi làm việc, và sự lạnh nhạt của người nhà, bạn bè vì đức tin. Hướng cầu nguyện: Lạy Chúa, xin cho con can đảm để không lùi bước trước những cái giá nhỏ. Xin cho con nhớ và cầu nguyện cho Hội Thánh bị bắt bớ ở nơi xa, và bám chặt điều này: nước thiên đàng đã là của con.

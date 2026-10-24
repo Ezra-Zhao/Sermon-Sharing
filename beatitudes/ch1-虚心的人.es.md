@@ -81,3 +81,7 @@ Gracias porque Cristo se hizo pobre por mí, para que por Su pobreza yo fuese en
 ---
 
 (Nota de las fuentes: El análisis de las palabras griegas en este capítulo se basa en el texto original, los números de Strong y la Traducción de Lü Zhenzhong; todas las citas bíblicas del manuscrito chino se cotejaron palabra por palabra con la Versión Unión China, y aquí se presentan según la NKJV. Dondequiera que se citan las opiniones de otros [los pastores Liu Tong, Cho Erjun y Li Jieren, así como Warren Wiersbe, Tim Keller y otros], la fuente ha sido indicada en el cuerpo del texto).
+
+## 灵修摘取 · Extracto devocional
+
+Texto central: «Bienaventurados los pobres en espíritu, porque de ellos es el reino de los cielos» (Mt 5:3). Puntos de hoy: la puerta del reino no se abre a los que se creen capaces, sino a los que reconocen su bancarrota espiritual. En el momento en que confiesas ante Dios: «no tengo nada, no puedo nada», el reino deja de ser una promesa lejana y ya es tuyo. Dirección de oración: Señor, hoy no voy a fingir que estoy bien. Dejo mi justicia y mi astucia delante de ti, y me presento con un espíritu pobre. Te entrego el volante de mi vida.

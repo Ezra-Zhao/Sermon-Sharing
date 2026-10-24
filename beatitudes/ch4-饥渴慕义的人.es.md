@@ -90,3 +90,7 @@ Tú has prometido que los que tienen hambre y sed de justicia serán saciados. C
 ---
 
 (Nota sobre la fuente: El análisis de la palabra griega en este capítulo se basa en los hechos gramaticales del texto original —los participios presentes, casos como el nominativo y el acusativo, y el futuro pasivo—, los números de Strong y el uso paralelo en el Nuevo Testamento; todas las citas bíblicas del manuscrito chino fueron revisadas palabra por palabra contra la Versión Unión China, y aquí se presentan en la NKJV, mientras que las demás referencias cruzadas se parafrasean en sustancia sin grandes citas textuales. Dondequiera que se citan los puntos de vista de otros (los pastores Liu Tong, Cho Erjun y Li Jieren, así como Warren Wiersbe, Tim Keller y otros), la fuente ha sido indicada en el cuerpo del texto.)
+
+## 灵修摘取 · Extracto devocional
+
+Texto central: «Bienaventurados los que tienen hambre y sed de justicia, porque ellos serán saciados» (Mt 5:6). Puntos de hoy: este hambre no es de una porción de justicia, sino de la justicia entera: estar bien con Dios y vivir bien delante de Dios. Quien sacia es Dios: el hombre trae el apetito, Dios trae el alimento. Dirección de oración: Señor, limpia mi apetito. Haz que hoy coma tu palabra antes que el teléfono, y que mi anhelo de justicia no se quede en palabras de indignación, sino que llegue a mis manos y a mi vida.

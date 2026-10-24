@@ -100,3 +100,7 @@ Ngài đã hứa rằng những người làm nên hòa bình sẽ được gọ
 ---
 
 (Ghi chú nguồn: Phân tích từ ngữ Hy Lạp trong chương này dựa trên eirēnopoios (G1518), chỉ được tìm thấy trong Tân Ước ở Ma-thi-ơ 5:9; động từ eirēnopoieō (G1517), được tìm thấy trong Cô-lô-se 1:20; cách dịch eirēnē (G1515) trong Bản Bảy Mươi tương ứng với shalom trong tiếng Hê-bơ-rơ; các nghĩa từ điển tiêu chuẩn của poieō (G4160) và kaleō (G2564); và các câu Kinh Thánh song song như Ma-thi-ơ 5:44-45 và Gia-cơ 3:18. Các trích dẫn Kinh Thánh đã được kiểm tra từng chữ với Bản Liên Hiệp Trung Hoa trong bản thảo gốc; các câu tham chiếu còn lại được diễn giải theo ý chính và không trích dẫn dài. Ở bất cứ nơi nào quan điểm của người khác (các Mục sư Liu Tong, Zhuo Erjun và Li Jieren, và Warren Wiersbe, Tim Keller và những người khác) được trích dẫn, nguồn được chỉ ra trong bản văn.)
+
+## 灵修摘取 · Trích đoạn tĩnh nguyện
+
+Câu Kinh Thánh trọng tâm: «Phước cho những kẻ làm cho người hòa nhau, vì sẽ được gọi là con Đức Chúa Trời!» (Ma-thi-ơ 5:9). Điểm chính hôm nay: hòa bình là điều Đức Chúa Trời đã làm trước: khi chúng ta còn là thù nghịch với Ngài, Ngài sai Con Ngài đến và trả giá bằng thập tự giá để đem chúng ta trở về. Vì vậy, người làm nên hòa bình là người bước bước đầu tiên đó trước: trong gia đình và Hội Thánh, hãy bước trước; trong công việc và nhóm chat, đừng làm người chuyển lửa. Hướng cầu nguyện: Lạy Chúa, Đức Chúa Trời của hòa bình, xin cho hôm nay chính con bước bước đầu tiên. Xin cho con không nhìn vào tự ái, mà nhìn vào thập tự giá của Ngài, để đưa tay ra trước.

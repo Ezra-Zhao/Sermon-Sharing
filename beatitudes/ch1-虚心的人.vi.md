@@ -82,3 +82,7 @@ Cảm tạ Chúa vì Đấng Christ đã vì con tự làm nên nghèo, hầu ch
 ---
 
 (Ghi chú nguồn: Phân tích từ ngữ Hy Lạp trong chương này dựa trên nguyên văn, mã số Strong và Bản dịch Lữ Chấn Trung; tất cả các trích dẫn Kinh Thánh trong bản thảo tiếng Hoa đều đã được đối chiếu từng chữ với Bản Hiệp Hòa, và ở đây được thể hiện theo bản NKJV. Bất cứ nơi nào trích dẫn quan điểm của người khác (các Mục sư Lưu Đồng, Trác Nhĩ Quân và Lý Kiệt Nhân, cũng như Warren Wiersbe, Tim Keller và những người khác), nguồn dẫn đều đã được ghi chú trong phần nội dung.)
+
+## 灵修摘取 · Trích đoạn tĩnh nguyện
+
+Câu Kinh Thánh trọng tâm: «Phước cho những kẻ có lòng khó khăn, vì nước thiên đàng là của những kẻ ấy!» (Ma-thi-ơ 5:3). Điểm chính hôm nay: cánh cửa nước thiên đàng không mở cho người tự cho mình là giỏi, mà cho người thừa nhận mình phá sản về thuộc linh. Ngay lúc bạn thú nhận trước mặt Đức Chúa Trời: «Con không có gì cả, con không làm được gì cả», nước thiên đàng không còn là lời hứa xa xôi, mà đã là của bạn rồi. Hướng cầu nguyện: Lạy Chúa, hôm nay con không giả vờ mình ổn nữa. Con đặt sự công bình và sự khôn ngoan của mình xuống trước mặt Ngài, và đến với tấm lòng khó khăn. Con xin trao tay lái đời con cho Ngài.

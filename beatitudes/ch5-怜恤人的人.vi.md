@@ -80,3 +80,7 @@ Ngài đã hứa rằng những kẻ hay thương xót sẽ được thương x�
 ---
 
 (Ghi chú nguồn: Phân tích từ ngữ Hy Lạp trong chương này dựa trên cách dùng của tính từ gốc eleēmōn, chỉ được tìm thấy trong Tân Ước ở Ma-thi-ơ 5:7 và Hê-bơ-rơ 2:17; cách dịch eleos trong Bản Bảy Mươi tương ứng với hesed; và các trích dẫn song song trong Ma-thi-ơ 9:13, 12:7 và 23:23. Các trích dẫn Kinh Thánh đã được kiểm tra từng chữ với Bản Liên Hiệp Trung Hoa trong bản thảo gốc; các câu tham chiếu còn lại được diễn giải theo ý chính và không trích dẫn dài. Ở bất cứ nơi nào quan điểm của người khác (các Mục sư Liu Tong, Zhuo Erjun và Li Jieren, và Warren Wiersbe, Tim Keller và những người khác) được trích dẫn, nguồn được chỉ ra trong bản văn.)
+
+## 灵修摘取 · Trích đoạn tĩnh nguyện
+
+Câu Kinh Thánh trọng tâm: «Phước cho những kẻ hay thương xót, vì sẽ được thương xót!» (Ma-thi-ơ 5:7). Điểm chính hôm nay: lòng thương xót là điều người đã nhận thương xót từ Đức Chúa Trời tuôn ra. Không phải chỉ đau lòng, mà tay phải hành động. Buông tha người đang ở trong tay mình, người đang mắc nợ mình — đó là thương xót. Hướng cầu nguyện: Lạy Chúa, xin cho con đừng quên món nợ lớn lao Ngài đã tha cho con. Xin làm mềm tay con, để hôm nay con buông tha người đang ở trong tay con.

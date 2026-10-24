@@ -82,3 +82,7 @@ Gracias por Tu promesa: los que lloran serán consolados. Gracias por enviar al 
 ---
 
 (Nota sobre las fuentes: El análisis de las palabras griegas en este capítulo se basa en el texto original, los números Strong y el uso de la Septuaginta; las citas de la Traducción de Lü Zhenzhong siguen el texto publicado públicamente; todas las citas bíblicas en el manuscrito en chino fueron cotejadas palabra por palabra con la Versión Unión China, y aquí se vierten según la NKJV. Dondequiera que se citen las opiniones de otros (los pastores Liu Tong, Cho Erjun y Li Jieren, así como Warren Wiersbe, Tim Keller y otros), la fuente ha sido indicada en el cuerpo del texto).
+
+## 灵修摘取 · Extracto devocional
+
+Texto central: «Bienaventurados los que lloran, porque ellos recibirán consolación» (Mt 5:4). Puntos de hoy: el duelo del reino es llorar de verdad ante el propio pecado y ante la quebrantación del mundo. La consolación que Jesús promete no es un «ten paciencia», sino la venida del Espíritu Santo, el Consolador, que se pone a tu lado para sostenerte. Dirección de oración: Señor, restaura en mí un corazón que todavía sabe dolerse. Traigo delante de ti las lágrimas que escondí y aguanté a la fuerza. Consuélame, y hazme también consolador de otros.

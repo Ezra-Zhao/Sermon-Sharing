@@ -100,3 +100,7 @@ Tú has prometido que los pacificadores serán llamados Tus hijos. No pido que t
 ---
 
 (Nota sobre la fuente: El análisis de la palabra griega en este capítulo se basa en eirēnopoios (G1518), que se encuentra en el Nuevo Testamento solo en Mt. 5:9; el verbo eirēnopoieō (G1517), que se encuentra en Col. 1:20; la traducción de eirēnē (G1515) en la Septuaginta correspondiente al hebreo shalom; los sentidos estándar del diccionario de poieō (G4160) y kaleō (G2564); y Escrituras paralelas como Mt. 5:44-45 y Stg. 3:18. Las citas bíblicas han sido revisadas palabra por palabra contra la Versión Unión China en el manuscrito original; las demás referencias cruzadas se parafrasean en sustancia y no se citan extensamente. Dondequiera que se citan las opiniones de otros (los pastores Liu Tong, Zhuo Erjun y Li Jieren, y Warren Wiersbe, Tim Keller y otros), la fuente se indica en el texto.)
+
+## 灵修摘取 · Extracto devocional
+
+Texto central: «Bienaventurados los pacificadores, porque ellos serán llamados hijos de Dios» (Mt 5:9). Puntos de hoy: la paz la hizo primero Dios: cuando éramos sus enemigos, envió a su Hijo y nos trajo de vuelta al precio de la cruz. Por eso, el pacificador es quien da primero ese paso: en la familia y en la iglesia da tú el primer paso, y en el trabajo y en los chats no seas de los que pasan el fuego. Dirección de oración: Señor, Dios de paz, haz que hoy ese primer paso lo dé yo. Que no mire mi orgullo, sino tu cruz, y extienda la mano.
