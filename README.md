@@ -4,6 +4,8 @@
 
 Weekly sermon manuscripts, shared for learning and ministry. New and archived manuscripts, released one a week.
 
+
+支持与更多：[GitHub Sponsors](https://github.com/sponsors/Ezra-Zhao) · [内容枢纽](https://ezra-zhao.github.io/ezra-content-hub/)
 ## 每篇格式
 
 - **主题** — 一句话讲清这篇道讲什么
