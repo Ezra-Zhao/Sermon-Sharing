@@ -6,6 +6,9 @@ Weekly sermon manuscripts, shared for learning and ministry. New and archived ma
 
 
 支持与更多：[GitHub Sponsors](https://github.com/sponsors/Ezra-Zhao) · [内容枢纽](https://ezra-zhao.github.io/ezra-content-hub/)
+
+📣 讲道更新同步到 Telegram 频道：https://t.me/EzraZhao777
+
 ## 每篇格式
 
 - **主题** — 一句话讲清这篇道讲什么
