@@ -368,3 +368,11 @@ This repository contains my own original sermon manuscripts as well as compiled/
 | 2026-10-23 | 甘心乐意的人（英文版） | 出埃及记 35 章 | 自撰（据经文与注释书）；英文版经 Gemini 独立审＋自审两轮交叉审通过、过审入库（首轮审第四波） |
 | 2026-10-23 | 甘心乐意的人（西班牙文版） | 出埃及记 35 章 | 自撰（据经文与注释书）；西班牙文版经 Gemini 独立审＋自审两轮交叉审通过、过审入库（首轮审第四波） |
 | 2026-10-23 | 甘心乐意的人（韩文版） | 出埃及记 35 章 | 自撰（据经文与注释书）；韩文版经 Gemini 独立审＋自审两轮交叉审通过、过审入库（首轮审第四波） |
+
+---
+
+## 支持与订阅 / Support & Subscribe
+
+这些内容免费开放。如果对您有帮助，欢迎通过 [GitHub Sponsors](https://github.com/sponsors/Ezra-Zhao) 支持我继续创作；每日更新见 [Telegram 频道《代码与诗篇》](https://t.me/EzraZhao777)，邮件周刊见 [《代码与诗篇》Code & Psalms](https://codeandpsalms.beehiiv.com)。
+
+These notes are free. If they help you, you can support the work via [GitHub Sponsors](https://github.com/sponsors/Ezra-Zhao); daily updates on [Telegram](https://t.me/EzraZhao777) and a weekly newsletter, [Code & Psalms](https://codeandpsalms.beehiiv.com).
